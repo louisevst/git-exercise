@@ -6,6 +6,9 @@
 
 ## Tous les chats avaient des couleurs différentes.
 
-Ajout
+## Mon chat préféré était le noir   
 
-ajout 2
+## Il était très petit 
+
+## Et très fluffy
+
